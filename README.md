@@ -1,0 +1,2 @@
+DigitalWave Inc. is a leading company in the field of information technology, specializing in modern software solutions and digital transformation services. With a mission to help businesses optimize their processes, the DigitalWave website is designed to be modern and user-friendly, allowing customers to explore cutting-edge tech products and services. We constantly innovate to stay ahead in the digital era.
+
